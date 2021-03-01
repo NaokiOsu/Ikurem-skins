@@ -1,4 +1,4 @@
-# salut c les skins d'ikurem
+# Ikurem skins
 
 # [khan mix](https://www.dropbox.com/s/x5a0itardfl42mx/-%20%20%20%20%20%20%20%20%23%20KHAN%20MIX%20%23-.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/455781440269844481/816081880758616113/screenshot604.jpg)
