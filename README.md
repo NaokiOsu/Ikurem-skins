@@ -12,9 +12,6 @@
 # [Rizer & Aristia(Edit) + Duckleader](https://drive.google.com/uc?export=download&id=12F82Z6apFPipaw7a-EFeKBJ_EFbN2sxh)
 ![](https://lh3.googleusercontent.com/-iyVX76aIWn0NWGXZD7pkCqwGqPvaQGCwPtDhwago1cwsCH4zvENnYhL5XV8H_5G4j5jtLKLjRMW8ZwSrVLK6rgmvwI_yAHyiZ8fslA4RVt0vTqMaBbeCy4=w1920-h1080-n)
 
-# [Rizer & Aristia(Edit) + Duckleader](https://drive.google.com/uc?export=download&id=12F82Z6apFPipaw7a-EFeKBJ_EFbN2sxh)
-![](https://lh3.googleusercontent.com/-iyVX76aIWn0NWGXZD7pkCqwGqPvaQGCwPtDhwago1cwsCH4zvENnYhL5XV8H_5G4j5jtLKLjRMW8ZwSrVLK6rgmvwI_yAHyiZ8fslA4RVt0vTqMaBbeCy4=w1920-h1080-n)
-
 # [- colorbog](https://mega.nz/file/YeY2iRiJ#HAa1LmI1PI6fXyd-BoyLYYMJZD7dgnvVRdLYfvIi-cE) 
 ![](https://cdn.discordapp.com/attachments/455781440269844481/816082236263759912/screenshot608.jpg)
 
